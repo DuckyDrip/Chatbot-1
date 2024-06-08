@@ -4,7 +4,7 @@ Baker:
 Mr. MIQDAD USAIMIN (Exquisite 3-star Michelin star bakery chef)
 
 Time open:
-Everyday from 7am to 6pm (Except weekends)
+Everyday from 9am to 11pm (Except weekends)
 
 Website Link:
 (https://decadent-delights-5xa7wja.gamma.site/)
